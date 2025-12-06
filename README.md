@@ -1,2 +1,5 @@
 # MaliciousMason67.github.io
-I had 4h of sleep last night I don't feel so well
+Enjoy the derivative of my sleep deprivation
+I was high
+sdfgvbnh mjuyt5ercv xbnhjuygtfvc njhgytfvc bnhygtrfdcv bnhgytfv cbnhgfvc bnghg
+fgfdv cbvnhgtfdv cbnmjhgfv bnjhgtfv cbnhjgbv
